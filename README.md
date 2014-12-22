@@ -35,162 +35,44 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The tragedy of MustaphaGreville, Fulke, Baron Brooke, 1554-1628.1609Approx. 101 KB of XML-encoded te
+
 #####Body#####
+
+1. THE TRAGEDY OF MVSTAPHA.
 Solyman.Rossa.Soly.ROssa the Eternall Wisedome doth not couetOf man his strength, or reason, but hisSolyman.Rossa.Soly.ROssa the Eternall Wisedome doth not couetOf man his strength, or reason, but his
-    _ ACTVS II. SCENA II.
+      * ACTVS II. SCENA II.
+ACTVS II. SCENA I.Camena alone,They that from youth do sucke at Fortunes brest,And nurse their empty
+      * ACTVS II. SCENA I.
 
-    _ ACTVS II. SCENA I.
+      * ACTVS II. SCENA II.
 
-    _ ACTVS II. SCENA II.
+      * ACTVS II. SCENA III.
 
-    _ ACTVS II. SCENA III.
+      * ACT. II. SCENA. IIII.
 
-    _ ACT. II. SCENA. IIII.
+    _ CHORVS.
 
-    _ ACT. III. SCENA. I.
+      * ACT. III. SCENA. I.
 
-    _ Act. 3. Scaen. 2.
+      * Act. 3. Scaen. 2.
 
-    _ Acuts tertius, Scena tertia.
+      * Acuts tertius, Scena tertia.
 
-    _ Actus tertius Scena quarta.
+      * Actus tertius Scena quarta.
 
-    _ Actus tertius Scena quinta.
+      * Actus tertius Scena quinta.
+ACTVS. IIII. SCENA. I.Zanger alone.Nourisht in Courts, where no thoughts peace is nourisht,Vs'd to b
+      * ACTVS. IIII. SCENA. I.
 
-    _ ACTVS. IIII. SCENA. I.
+      * ACTVS IIII. SCENA II.
 
-    _ ACTVS IIII. SCENA II.
+      * ACTVS IIII. SCENA III.
 
-    _ ACTVS IIII. SCENA III.
+    _ CHORVS.
 
-    _ ACTVS. V. SCENA. I.
+      * ACTVS. V. SCENA. I.
 
-    _ ACTVS. V. SCENA. II.
-ACTVS II. SCENA I.Camena alone,They that from youth do sucke at Fortunes brest,And nurse their emptySolyman.Rossa.Soly.ROssa the Eternall Wisedome doth not couetOf man his strength, or reason, but his
-    _ ACTVS II. SCENA II.
-
-    _ ACTVS II. SCENA I.
-
-    _ ACTVS II. SCENA II.
-
-    _ ACTVS II. SCENA III.
-
-    _ ACT. II. SCENA. IIII.
-
-    _ ACT. III. SCENA. I.
-
-    _ Act. 3. Scaen. 2.
-
-    _ Acuts tertius, Scena tertia.
-
-    _ Actus tertius Scena quarta.
-
-    _ Actus tertius Scena quinta.
-
-    _ ACTVS. IIII. SCENA. I.
-
-    _ ACTVS IIII. SCENA II.
-
-    _ ACTVS IIII. SCENA III.
-
-    _ ACTVS. V. SCENA. I.
-
-    _ ACTVS. V. SCENA. II.
-
-1. CHORVS.
-Solyman.Rossa.Soly.ROssa the Eternall Wisedome doth not couetOf man his strength, or reason, but his
-    _ ACTVS II. SCENA II.
-
-    _ ACTVS II. SCENA I.
-
-    _ ACTVS II. SCENA II.
-
-    _ ACTVS II. SCENA III.
-
-    _ ACT. II. SCENA. IIII.
-
-    _ ACT. III. SCENA. I.
-
-    _ Act. 3. Scaen. 2.
-
-    _ Acuts tertius, Scena tertia.
-
-    _ Actus tertius Scena quarta.
-
-    _ Actus tertius Scena quinta.
-
-    _ ACTVS. IIII. SCENA. I.
-
-    _ ACTVS IIII. SCENA II.
-
-    _ ACTVS IIII. SCENA III.
-
-    _ ACTVS. V. SCENA. I.
-
-    _ ACTVS. V. SCENA. II.
-ACTVS. IIII. SCENA. I.Zanger alone.Nourisht in Courts, where no thoughts peace is nourisht,Vs'd to bSolyman.Rossa.Soly.ROssa the Eternall Wisedome doth not couetOf man his strength, or reason, but his
-    _ ACTVS II. SCENA II.
-
-    _ ACTVS II. SCENA I.
-
-    _ ACTVS II. SCENA II.
-
-    _ ACTVS II. SCENA III.
-
-    _ ACT. II. SCENA. IIII.
-
-    _ ACT. III. SCENA. I.
-
-    _ Act. 3. Scaen. 2.
-
-    _ Acuts tertius, Scena tertia.
-
-    _ Actus tertius Scena quarta.
-
-    _ Actus tertius Scena quinta.
-
-    _ ACTVS. IIII. SCENA. I.
-
-    _ ACTVS IIII. SCENA II.
-
-    _ ACTVS IIII. SCENA III.
-
-    _ ACTVS. V. SCENA. I.
-
-    _ ACTVS. V. SCENA. II.
-
-1. CHORVS.
-Solyman.Rossa.Soly.ROssa the Eternall Wisedome doth not couetOf man his strength, or reason, but his
-    _ ACTVS II. SCENA II.
-
-    _ ACTVS II. SCENA I.
-
-    _ ACTVS II. SCENA II.
-
-    _ ACTVS II. SCENA III.
-
-    _ ACT. II. SCENA. IIII.
-
-    _ ACT. III. SCENA. I.
-
-    _ Act. 3. Scaen. 2.
-
-    _ Acuts tertius, Scena tertia.
-
-    _ Actus tertius Scena quarta.
-
-    _ Actus tertius Scena quinta.
-
-    _ ACTVS. IIII. SCENA. I.
-
-    _ ACTVS IIII. SCENA II.
-
-    _ ACTVS IIII. SCENA III.
-
-    _ ACTVS. V. SCENA. I.
-
-    _ ACTVS. V. SCENA. II.
+      * ACTVS. V. SCENA. II.
 
 **Types of content**
 
